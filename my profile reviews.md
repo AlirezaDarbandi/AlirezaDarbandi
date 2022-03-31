@@ -2,7 +2,7 @@
 - 👀 I’m interested in cryptocurrency
 - 🌱 I’m currently learning Programming in the field of digital currencies
 - 💞️ Looking for a woman who is proficient in programming and teaches me to launch a project together, of course, if there is a cost to launch the project, we will negotiate and agree.
-- 📫 How to reach me With my mobile phone in Iran 09122888076 And email alireza.darbandi79@gmail.com And as far as I know, I will guide you
+- 📫 How to reach my mobile phone in Iran 09122888076 And email alireza.darbandi79@gmail.com And as far as I know, I will guide you
 
 <!---
 AlirezaDarbandi/AlirezaDarbandi is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
